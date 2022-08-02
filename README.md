@@ -10,4 +10,5 @@ Growth is an endless process. Wrong to slightly less wrong. Certainty restricts 
 
 JK, the weather cleared up. Pool with kevin, alex, and saahil was fun. My abs were so tired. I 100% burned a lot, cuz my body isn't used to swimming. Last time I swam, was 6 years ago. Played Water Polo basically except instead of a goal net, we had a hula hoop as the goal. Saahil was so burned and inted me. smh. 
 
-After pool, went to Kevin's house with Alex and chilled for an 1.5 hour, played the binding of isaac for an hour, then went back home. Kind of useless, but whatever chill day so far. 
+After pool, went to Kevin's house with Alex and chilled for an 1.5 hour, played the binding of isaac for an hour, then went back home. Kind of useless, but whatever chill day so far. Also idk, when Alex asked me if I can take him home and I said no, I felt bad cuz I should have. But idk, I was just mega tired and wanted to go home as quickly as possible. Also, didn't want to waste gas cuz I was driving my dad's car. My brother's car which I drive will be back in september. 
+
