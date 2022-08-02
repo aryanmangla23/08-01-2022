@@ -46,3 +46,9 @@ If your partner asks if she looks good. Don't say "you always look good regardle
 Destructive about cheating is the trust, not the fucking sex. The cheater has to find out what fucked up values caused him to break the trust cjeater established with their other partner. 
 
 Commitment gives freedom b/c not distracted by unimportant things.
+
+A man who fully lives is prepared to die at any moment. 
+
+Being comfortable with death is to understand and see myself as something bigger than myself. Values stretching beyond serving myself that is controllable.
+
+The End. 
