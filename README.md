@@ -27,3 +27,20 @@ Action, inspiration, motivation
 Act of choosing values requires rejecting alt values. Honesty requires rejecting, saying no. Romantic love is like drugs. Feelings of entitlement. Unhealthy - using each othr to escape their problems. Healthy - using each other to go through their prlbems together with each other's help, affirmation, and support. 
 
 Here is a [song](https://open.spotify.com/track/5inDa3sWj8zqJBOdj7Bjqc?si=b1f6e4842c0f4f72).
+
+poor boundaries: cant hang out with friends wihtout me. 
+
+Victims: hold themselves accountable for their problems
+
+Savers: Stop taking rsponsibility for other people's problems
+
+Acts of love are performed with no condition or expectations.
+
+Strong boundaries expect getting an argument, hurt. Weak boundaries scared of those and will mold behavior to avoid them.
+
+**Don't give a fuck about everything my partner gives a fuck about, but giving a fuck about my partner regardless of the fucks she gives.
+**
+
+If your partner asks if she looks good. Don't say "you always look good regardless". give the honest opinion. honesty is more important than feeling good all the time. How can you trust a partner who only says yes. pain shows the trust in each other and greater intimacy. **Conflict is neccessary of a healthy relationship** 
+
+Destructive about cheating is the trust, not the fucking sex.
