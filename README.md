@@ -23,3 +23,7 @@ Success metric: Not big like "become a doctor", better small goals, dont make it
 **JUST SHUT UP AND DO IT. LIFE IS ABOUT NOT KNOWING AND DOING SOMETHING REGARDLESS**
 
 Action, inspiration, motivation
+
+Act of choosing values requires rejecting alt values. Honesty requires rejecting, saying no. Romantic love is like drugs. Feelings of entitlement. Unhealthy - using each othr to escape their problems. Healthy - using each other to go through their prlbems together with each other's help, affirmation, and support. 
+
+Here is a [song](https://open.spotify.com/track/5inDa3sWj8zqJBOdj7Bjqc?si=b1f6e4842c0f4f72).
