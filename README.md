@@ -32,7 +32,7 @@ poor boundaries: cant hang out with friends wihtout me.
 
 Victims: hold themselves accountable for their problems
 
-Savers: Stop taking rsponsibility for other people's problems
+Savers: Stop taking responsibility for other people's problems
 
 Acts of love are performed with no condition or expectations.
 
@@ -43,4 +43,6 @@ Strong boundaries expect getting an argument, hurt. Weak boundaries scared of th
 
 If your partner asks if she looks good. Don't say "you always look good regardless". give the honest opinion. honesty is more important than feeling good all the time. How can you trust a partner who only says yes. pain shows the trust in each other and greater intimacy. **Conflict is neccessary of a healthy relationship** 
 
-Destructive about cheating is the trust, not the fucking sex.
+Destructive about cheating is the trust, not the fucking sex. The cheater has to find out what fucked up values caused him to break the trust cjeater established with their other partner. 
+
+Commitment gives freedom b/c not distracted by unimportant things.
